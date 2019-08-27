@@ -1,0 +1,2 @@
+# thinking
+Learning from Life
